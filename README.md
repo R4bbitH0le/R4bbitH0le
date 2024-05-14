@@ -4,6 +4,6 @@
 
 -♡ Open art trades!! Feel free to whisp
 
--★ Wilbur/DTeam/Problematic stans/DNI
+-★ Wilbur/DTeam/Problematic stans/Fake sys DNI
 
 ⊹ .* - ——— ⛧ 🦇 ⛧ ——— - . ݁, ⊹
