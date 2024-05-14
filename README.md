@@ -1,4 +1,3 @@
-### Hi there 👋
 
 <!--
 **R4bbitH0le/R4bbitH0le** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
