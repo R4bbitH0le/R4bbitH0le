@@ -1,9 +1,7 @@
 ⊹ .* - ——— ⛧ 🦇 ⛧ ——— - . ݁, ⊹
 
--★ Feel free to int (as long as you're not in the basic DNI criteria). Im always up to meet new people! 
+-★ Feel free to int, Im always up to meet new people! Make sure to read Antsbyi first!
 
 -♡ Open art trades!! Feel free to whisp
-
--★ Wilbur/DTeam/Problematic stans/Fake sys DNI
 
 ⊹ .* - ——— ⛧ 🦇 ⛧ ——— - . ݁, ⊹
